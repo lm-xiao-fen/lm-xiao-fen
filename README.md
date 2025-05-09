@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @lm-xiao-fen
-- 🌱 I’m currently learning code
+- 👋哈喽，我是＠lm-xiao-fen
+- 🌱 I’m currently learning cod
 - 📫 How to reach me: e-mail:G114514g@yeah.net
 - 😄 Pronouns: xiaofeng
 - ⚡ Fun fact: man what l sys
