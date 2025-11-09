@@ -8,4 +8,6 @@
 
 我发布的动东西都是AI帮我完成的，有错请指出
 ## 联系我
-邮箱地址：G114514g＠yeah.net
+[bilibili](https://space.bilibili.com/3494372658121066)
+[email](mailto:G114514g＠yeah.net)
+[YouTube](youtobe.com/@lm-xiao-fen)
