@@ -10,4 +10,4 @@
 ## 联系我
 [bilibili](https://space.bilibili.com/3494372658121066)
 [email](mailto:G114514g＠yeah.net)
-[YouTube](youtobe.com/@lm-xiao-fen)
+[YouTube](https://youtobe.com/@lm-xiao-fen)
